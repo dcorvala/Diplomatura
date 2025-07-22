@@ -33,7 +33,7 @@ El enfoque es **didáctico**, gradual y con fuerte orientación a la práctica r
 
 ## 📬 Contacto
 
-- 📧 corvalandario@gmail.com
+- 📧 dcorvala@gmail.com
 
 ---
 
